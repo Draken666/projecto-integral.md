@@ -22,6 +22,10 @@ Vamos poner una base con forma de casita con las figuras cortadas, los bordes es
 
 en forma de L
 
+a la casa le haremos con dos puertas con visagras impresas, esto hara que sea mas facil sacar o meter las plantas para x cosa
+
+
+
 
 
 
