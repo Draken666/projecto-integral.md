@@ -26,4 +26,3 @@ en forma de L
 
 
 
-
