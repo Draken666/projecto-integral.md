@@ -20,5 +20,9 @@ Vamos poner una base con forma de casita, los bordes estaran hechos con madera, 
 
 4 maderas de 19'4 x2
 
-en forma de l
+en forma de L
+
+
+
+
 
