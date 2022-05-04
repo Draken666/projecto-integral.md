@@ -25,6 +25,30 @@ en forma de L
 a la casa le haremos con dos puertas con visagras impresas, esto hara que sea mas facil sacar o meter las plantas para x cosa
 
 
+## SIGUIENTES PASOS
+
+Ahora cuando cortamos las maderas, y el mataquilatro, los unimos con cola, con una psitola,
+
+Lo primero que unimos es la base del metaquilatro
+
+Despues las maderas
+
+Lo engancharemos por los bordes las maderas es decir para que hagan como una espoecie de base
+
+Pondremos una madera lo suficientemente grande para que sujete la base
+
+Habra que poner una especie de estanteria
+
+Leo nos imprimio unas visagras, teniamos que quitarle lo restante, es decir lijarlo y quitar las piezas sobrantes
+
+Despues las engancharemos con, podremos las puertas y ya estaria
+
+
+Y el jueves le pondremos las puertas con las vusagras
+
+
+
+
 
 
 
